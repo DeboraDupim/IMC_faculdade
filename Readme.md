@@ -1,1 +1,1 @@
-Esse é um dos projtos que elaborei na faculdade.
+Esse é um dos projetos que elaborei na faculdade.
